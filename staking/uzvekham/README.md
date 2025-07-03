@@ -1,4 +1,4 @@
-> # **If you're holding $UZVEK (UZVEKHAM) and want to earn passive income, this staking guide will walk you through everything you need to know on Hyperliquid.**
+>  **If you're holding $UZVEK (UZVEKHAM) and want to earn passive income, this staking guide will walk you through everything you need to know on Hyperliquid.**
 
 ![How to Stake $UZVEK UZVEKHAM on Hyperliquid](https://cdn-images-1.medium.com/v2/resize:fit:1600/1*yZtl3rmBpvvF528deNk6nQ.png)
 
